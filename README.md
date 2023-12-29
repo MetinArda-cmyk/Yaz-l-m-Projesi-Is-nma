@@ -1,1 +1,1 @@
-# Yaz-l-m-Projesi-Is-nma
+# Dosyaları buraya atabilriz en sn birleştiririz
